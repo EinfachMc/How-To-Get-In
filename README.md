@@ -2,4 +2,4 @@
 Ja wie ihr hier rein kommt
 
 # NUR EINFACHMC IDIOTEN
-## Ja schreibt Lee euren Github namen is easy, lol!
+## Geht nicht mehr weil Alex gekickt hat!
